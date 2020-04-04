@@ -1,1 +1,0 @@
-# lazizbekgege.github.io
